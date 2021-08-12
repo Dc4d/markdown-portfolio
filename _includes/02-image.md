@@ -1,0 +1,1 @@
+![where should I find a pic to replace it?](https://cdn.vox-cdn.com/thumbor/fm7kgzzwIC7pT95IRelqkUrAROs=/0x0:900x1200/1320x0/filters:focal(0x0:900x1200):format(webp):no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/6913603/7769126492_39bb9c88b9_o.jpg)
